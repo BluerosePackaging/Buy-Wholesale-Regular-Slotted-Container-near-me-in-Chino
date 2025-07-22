@@ -44,5 +44,5 @@ Bluerose Packaging supplies reliable **Regular Slotted Containers in Chino** bui
 ---
 
 Get durable, affordable **RSC shipping boxes** today from Bluerose Packaging.  
-Visit [bluerosepackaging.com](https://www.bluerosepackaging.com/product-category/boxes/) to place an order or request a fast, custom quote.
+Visit [bluerosepackaging.com](https://www.bluerosepackaging.com/product/regular-slotted-container/) to place an order or request a fast, custom quote.
 
